@@ -28,8 +28,6 @@ To provide a strategic foundation for launching a leather shoe business in India
 - Knowledge Documentation
 - Strategic Presentation Design
 
-For editable version, download `Leather_Shoe_Industry_Report.pptx`
-
 ---
 📧 **Author:** Prachi Gupta  
 
